@@ -8,7 +8,7 @@
 
 <a href="https://www.imood.com/users/itrap_2245"><img src="https://moods.imood.com/display/uname-itrap_2245/fg-f04c4d/bg-ffde6d/imood.gif" alt="The current mood of itrap_2245 at www.imood.com" border="0"></a>
 
-$\color{#f04c4d}\textsf{Call me iTrapped, Furina or Angel!!}$
+$\color{#f04c4d}\textsf{Call me Charlotte, Furina, Angel or iTrapped! Nicknames are fine too!!}$
 
 $\color{#FFDE6D}\textsf{If you want to be friends then please come up / whisper me on pony town!! Or sign my ata...!!}$
 
