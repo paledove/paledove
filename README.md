@@ -4,7 +4,7 @@
 
 ![THE AUDIENCE](https://hits.sh/github.com/itrap-2245.svg?label=THE+AUDIENCE&extraCount=2&color=ffde6d&labelColor=f04c4d)
 
-<img align="center" alt="ichance" src="https://i.postimg.cc/hPhTfHL7/Untitled112-20261116150648.png" width="700"/>
+<img align="center" alt="charlie" src="https://files.catbox.moe/zr3j4t.png" width="700"/>
 
 <a href="https://www.imood.com/users/itrap_2245"><img src="https://moods.imood.com/display/uname-itrap_2245/fg-f04c4d/bg-ffde6d/imood.gif" alt="The current mood of itrap_2245 at www.imood.com" border="0"></a>
 
@@ -16,7 +16,7 @@ $\color{#FFDE6D}\textsf{If you want to be friends then please come up / whisper 
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Shantell+Sans&pause=1000&color=A97BB9&center=true&width=435&lines=Let+my+name+echo+in+song!!" alt="Typing SVG" /></a>
 
-<img align="center" alt="ichance" src="https://i.postimg.cc/NGZ29rzf/ichance.png" width="700"/>
+<img align="center" alt="charlie" src="https://files.catbox.moe/3amwjm.png" width="700"/>
 
 </details>
 </div>
