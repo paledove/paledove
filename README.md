@@ -1,4 +1,4 @@
-<img align="center" alt="divider" src="https://files.catbox.moe/hm44yp.jpg">
+<img align="center" alt="divider" src="https://files.catbox.moe/p7iojk.png">
 
 <div align="center">
 
@@ -30,4 +30,4 @@ $\color{#382E3C}\textsf{If you want to be friends then please come up / whisper 
 </details>
 </div>
 
-<img align="center" alt="divider" src="https://files.catbox.moe/1t19ed.jpg">
+<img align="center" alt="divider" src="https://files.catbox.moe/wlle8j.png">
