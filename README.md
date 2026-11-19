@@ -4,9 +4,9 @@
 
 ![THE AUDIENCE](https://hits.sh/github.com/itrap-2245.svg?label=THE+AUDIENCE&extraCount=2&color=E1C76B&labelColor=382E3C)
 
-<img align="center" alt="charlie" src="https://files.catbox.moe/zr3j4t.png" width="700"/>
-
 <a href="https://www.imood.com/users/itrap_2245"><img src="https://moods.imood.com/display/uname-itrap_2245/fg-382E3C/bg-E1C76B/imood.gif" alt="The current mood of itrap_2245 at www.imood.com" border="0"></a>
+
+<img align="center" alt="charlie" src="https://files.catbox.moe/zr3j4t.png" width="700"/>
 
 $\color{#E1C76B}\textsf{Call me Charlotte, Furina, Angel or iTrapped! Nicknames are fine too!!}$
 
