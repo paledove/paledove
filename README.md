@@ -8,7 +8,7 @@
 
 <img align="center" alt="charlie" src="https://files.catbox.moe/zr3j4t.png" width="700"/>
 
-$\color{#E1C76B}\textsf{Call me Charlotte, Furina, Angel or iTrapped! Nicknames are fine too!!}$
+$\color{#E1C76B}\textsf{Call me Charlotte, Furina, Nashatra or iTrapped! Nicknames are fine too!!}$
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Shantell+Sans&pause=1000&color=382E3C&center=true&width=435&lines=Hand+in+hand%2C+through+each+endeavor.;In+this+world%2C+we're+friends+forever.;In+pixels%E2%80%99+haze%2C+a+friendship+grew.;In+a+world+I+built+for+you." alt="Typing SVG" /></a>
 
