@@ -1,4 +1,4 @@
-<img align="center" alt="divider" src="https://files.catbox.moe/p7iojk.png">
+<img align="center" alt="divider" src="https://files.catbox.moe/kv5ge7.png">
 
 <div align="center">
 
@@ -6,7 +6,7 @@
 
 <a href="https://www.imood.com/users/itrap_2245"><img src="https://moods.imood.com/display/uname-itrap_2245/fg-382E3C/bg-E1C76B/imood.gif" alt="The current mood of itrap_2245 at www.imood.com" border="0"></a>
 
-<img align="center" alt="charlie" src="https://files.catbox.moe/zr3j4t.png" width="700"/>
+<img align="center" alt="charlie" src="https://files.catbox.moe/6ryqec.png" width="700"/>
 
 $\color{#E1C76B}\textsf{Call me Charlotte, Furina, Nashatra or iTrapped! Nicknames are fine too!!}$
 
@@ -16,7 +16,7 @@ $\color{#E1C76B}\textsf{If you want to be friends then please come up / whisper 
 
 <div align="center">
 
-<img align="center" alt="charlie" src="https://files.catbox.moe/3amwjm.png" width="700"/>
+<img align="center" alt="charlie" src="https://files.catbox.moe/bv7kn1.png" width="700"/>
 
 </details>
 </div>
@@ -30,4 +30,4 @@ $\color{#E1C76B}\textsf{If you want to be friends then please come up / whisper 
 </details>
 </div>
 
-<img align="center" alt="divider" src="https://files.catbox.moe/wlle8j.png">
+<img align="center" alt="divider" src="https://files.catbox.moe/s524nk.png">
