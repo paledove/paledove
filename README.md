@@ -22,7 +22,7 @@ $\color{#8B0D1B}\textsf{If you want to be friends then please come up / whisper 
 
 <img align="center" alt="divider" src="https://i.postimg.cc/brKtpWBv/Untitled130-20261126155915.png">
 
-$\color{#957642}\textsf{ME AND MY FRIENDS!!! LOVE U ALLL!!! <3333}$
+$\color{#AC1C9B}\textsf{ME}$ $\color{957642}\textsf{AND MY}$ $\color{#AA0A44}\textsf{EN}$ $\color{#A3771E}\textsf{DS}$ $\color{957642}\textsf{!!!}$ $\color{#957642}\textsf{LOVE U ALLL!!! <3333}$
 
 <img align="center" alt="sp4 sp8 sx7 so2" src="https://i.postimg.cc/x8gvQ6S7/Untitled131-20261126153320.png" width="700"/>
 
