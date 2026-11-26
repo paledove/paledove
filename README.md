@@ -2,11 +2,13 @@
 
 <div align="center">
 
-![THE AUDIENCE](https://hits.sh/github.com/itrap-2245.svg?label=THE+AUDIENCE&extraCount=2&color=8B0D1B&labelColor=94569C)
+![THE AUDIENCE](https://hits.sh/github.com/itrap-2245.svg?label=THE+AUDIENCE&extraCount=2&color=94569C&labelColor=8B0D1B)
 
 <a href="https://www.imood.com/users/itrap_2245"><img src="https://moods.imood.com/display/uname-itrap_2245/fg-94569C/bg-8B0D1B/imood.gif" alt="The current mood of itrap_2245 at www.imood.com" border="0"></a>
 
-<img align="center" alt="me and floyz" src="https://i.postimg.cc/YCT1t4Ts/Untitled133-20261126154100.png" width="700"/>
+<img align="center" alt="frozenpizza" src="https://i.postimg.cc/YCT1t4Ts/Untitled133-20261126154100.png" width="700"/>
+
+$\color{#94569C}\textsf{Me and Floyz btw... :33c}$
 
 $\color{#8B0D1B}\textsf{Call me Charlotte, Furina, Nashatra or iTrapped! Nicknames are fine too!!}$
 
@@ -16,7 +18,9 @@ $\color{#8B0D1B}\textsf{If you want to be friends then please come up / whisper 
 
 <div align="center">
 
-<img align="center" alt="charlie" src="https://i.postimg.cc/x8gvQ6S7/Untitled131-20261126153320.png" width="700"/>
+<img align="center" alt="sp4 sp8 sx7 so2" src="https://i.postimg.cc/x8gvQ6S7/Untitled131-20261126153320.png" width="700"/>
+
+$\color{#94569C}\textsf{ME AND MY FRIENDS!!! LOVE U ALLL!!! <3333}$
 
 </details>
 </div>
