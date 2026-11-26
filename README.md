@@ -10,6 +10,8 @@
 
 $\color{#957642}\textsf{Me and Floyz btw... :33c}$
 
+<img align="center" alt="divider" src="https://i.postimg.cc/brKtpWBv/Untitled130-20261126155915.png">
+
 $\color{#8B0D1B}\textsf{Call me Charlotte, Furina, Nashatra or iTrapped! Nicknames are fine too!!}$
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Shantell+Sans&pause=1000&color=382E3C&center=true&width=435&lines=Hand+in+hand%2C+through+each+endeavor.;In+this+world%2C+we're+friends+forever.;In+pixels%E2%80%99+haze%2C+a+friendship+grew.;In+a+world+I+built+for+you." alt="Typing SVG" /></a>
@@ -18,9 +20,11 @@ $\color{#8B0D1B}\textsf{If you want to be friends then please come up / whisper 
 
 <div align="center">
 
-<img align="center" alt="sp4 sp8 sx7 so2" src="https://i.postimg.cc/x8gvQ6S7/Untitled131-20261126153320.png" width="700"/>
+<img align="center" alt="divider" src="https://i.postimg.cc/brKtpWBv/Untitled130-20261126155915.png">
 
 $\color{#957642}\textsf{ME AND MY FRIENDS!!! LOVE U ALLL!!! <3333}$
+
+<img align="center" alt="sp4 sp8 sx7 so2" src="https://i.postimg.cc/x8gvQ6S7/Untitled131-20261126153320.png" width="700"/>
 
 </details>
 </div>
