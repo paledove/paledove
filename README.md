@@ -8,7 +8,7 @@
 
 <img align="center" alt="frozenpizza" src="https://i.postimg.cc/YCT1t4Ts/Untitled133-20261126154100.png" width="700"/>
 
-$\color{#94569C}\textsf{Me and Floyz btw... :33c}$
+$\color{#957642}\textsf{Me and Floyz btw... :33c}$
 
 $\color{#8B0D1B}\textsf{Call me Charlotte, Furina, Nashatra or iTrapped! Nicknames are fine too!!}$
 
@@ -20,7 +20,7 @@ $\color{#8B0D1B}\textsf{If you want to be friends then please come up / whisper 
 
 <img align="center" alt="sp4 sp8 sx7 so2" src="https://i.postimg.cc/x8gvQ6S7/Untitled131-20261126153320.png" width="700"/>
 
-$\color{#94569C}\textsf{ME AND MY FRIENDS!!! LOVE U ALLL!!! <3333}$
+$\color{#957642}\textsf{ME AND MY FRIENDS!!! LOVE U ALLL!!! <3333}$
 
 </details>
 </div>
